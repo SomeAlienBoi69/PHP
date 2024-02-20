@@ -1,5 +1,1 @@
-Chuj
-  /\
-  |
-  |
-potwierdzam byłem "u"
+8==========o
