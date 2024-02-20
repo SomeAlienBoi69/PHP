@@ -1,1 +1,5 @@
 Chuj
+  /\
+  |
+  |
+potwierdzam byłem "u"
